@@ -20,4 +20,4 @@
 总之，日本AV资源类型丰富，免费在线观看渠道虽多，但用户应始终保持理性，选择正规、安全的途径获取所需内容，既满足个人观影需求，又保障上网安全，避免落入不良网站陷阱，打造健康、良好的观影体验环境。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/xx45757/665520 ）</span>
